@@ -69,8 +69,8 @@ Em breve novos projetos estarão disponíveis aqui!
 
 ## 📫 Contato
 
-📧 Email: seuemail@email.com  
-💼 LinkedIn: https://linkedin.com/in/seu-link  
+📧 Email: renan.al.ventura@email.com  
+💼 LinkedIn: [https://linkedin.com/in/seu-link  ](https://www.linkedin.com/in/renanalventuradata/)
 
 ---
 
